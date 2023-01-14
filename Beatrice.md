@@ -12,10 +12,10 @@ I am a second year economics student in UofT focusing on Data Analytics!
 
 ![alt text](https://i1.sndcdn.com/artworks-agKkGQSM4sKxWZyL-KemsNg-t500x500.png) 
 
-## 2 Truths and 1 Lie | :shush: 
-:skull: I am terrified of geckos
-🔫 I won a swimming competition and am really good at the sport
-:anger: I am born without 2 teeth
+## 2 Truths and 1 Lie | :shushing_face: 
+1. :skull: I am terrified of geckos
+2. 🔫 I won a swimming competition and am really good at the sport
+3. :anger: I am born without 2 teeth
 
 ## My links / info | 🔗
 | Instagram | Resume |

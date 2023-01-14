@@ -8,7 +8,8 @@ I am in my fourth and final year of health sciences and am looking forward to gr
 - :speaking_head: I am trilingual
 
 ## My favourite song | :notes:
-[Drops of Jupiter by Train] (https://www.youtube.com/watch?v=7Xf-Lesrkuc)
+[Drops of Jupiter by Train](https://www.youtube.com/watch?v=7Xf-Lesrkuc)
+[alt text](https://upload.wikimedia.org/wikipedia/en/9/9d/Train_Drops_of_Jupiter.jpg)
 
 ## 2 Truths and 1 Lie | 🤫
 1. :car: [I fell out of a moving car once](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)

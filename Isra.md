@@ -1,6 +1,6 @@
 # Welcom to Isra Tanveer's README!
 ## :test_tube: :pill: :syringe:
-I am in my fourth and final year of health sciences and am looking forward to graduating!
+I am in my fourth and final year of health sciences and am looking forward to graduating! I don't know what I want to do after graduating, which is why I have been exploring different areas of study. In fact, that's why I'm at Hacker Olympics this weekend!
 
 ## Some fun facts about me | :woman:
 - :pakistan: I am from Pakistan

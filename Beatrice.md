@@ -1,13 +1,15 @@
 ## Welcome to Beatrice Ng's read me!
 ## :bulb: :books:
 I am a second year economics student in UofT focusing on Data Analytics! 
+
 ## 3 Facts about me: 
 -I have very bad moodswings 
 -I love baking but don't have a sweet tooth 
 -I am an international student from Hong Kong!!
 
 ## My favourite song :notes:
-[Special by SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM)  
+[Special by SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM) 
+![alt text](https://yt3.googleusercontent.com/_W2XMP5_R2HP_WXN958k-K2bHvfm69ixeP_2Tfrfg9QxuPOREoMztZ8QGIwhs_7QkhuDoi1K-ho=s900-c-k-c0x00ffffff-no-rj) 
 
 ## 2 Trues and 1 Lie 
 -I am terrified of geckos 

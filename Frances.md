@@ -8,6 +8,9 @@ I was previously in Psych, but that didn't really work out.
 - 🍪 I make really good snickerdoodles
 - 🧀 I really like cheese
 
+## My favourite song | 🎵
+[OMG - Newjeans](https://youtu.be/_ZAgIHmHLdc)
+
 ## 2 Truths and 1 Lie | 🤫
 1. 🐐 [I can make really accurate goat noises](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)
 2. 🔫 [I'm ranked gold on Valorant](https://www.looper.com/img/gallery/the-untold-truth-of-pinocchio/intro-1637802137.jpg) 

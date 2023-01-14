@@ -9,7 +9,7 @@ I am a second year economics student in UofT focusing on Data Analytics!
 
 ## My favourite song :notes:
 [Special by SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM) 
-![alt text](https://yt3.googleusercontent.com/_W2XMP5_R2HP_WXN958k-K2bHvfm69ixeP_2Tfrfg9QxuPOREoMztZ8QGIwhs_7QkhuDoi1K-ho=s900-c-k-c0x00ffffff-no-rj) 
+![alt text](https://i1.sndcdn.com/artworks-agKkGQSM4sKxWZyL-KemsNg-t500x500.png) 
 
 ## 2 Trues and 1 Lie 
 -I am terrified of geckos 

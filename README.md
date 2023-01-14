@@ -1,7 +1,7 @@
 # The-3-Hackateers | 😸 😼 😽
 ![alt text](https://static.wikia.nocookie.net/shrek/images/1/1f/Puss-in-Boots-The-Three-Diablos.png/revision/latest?cb=20120503233755)
 
-None of us in the same program and we just met, but we make it work!
+None of us are in the same program and we just met, but we make it work!
 
 # About Us
 ## How did we come up with our name? | 📔

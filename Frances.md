@@ -20,4 +20,7 @@ I was previously in Psych, but that didn't really work out.
 
 (please dont check my match history... 😅)
 
+Anyways, cats!
+
 ![alt text](https://www.transparentpng.com/thumb/cat/2ZPZNa-cat-free-download.png)
+![alt text](https://www.freepnglogos.com/uploads/cat-png/cat-boarding-24.png)

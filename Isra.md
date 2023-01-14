@@ -15,7 +15,7 @@ I am in my fourth and final year of health sciences and am looking forward to gr
 ## My links / info | 🔗
 | Instagram | League username | Resume |
 | --------------- | --------------- | --------------- |
-| [isra_tanveer](https://www.instagram.com/isra_tanveer/) | [Isra Tanveer](https://uwoca-my.sharepoint.com/:w:/g/personal/itanvee_uwo_ca/Ec6E3UxqNSlGrDux0BJgj4EBuVPkam8k4llcSfqm4bla8Q?e=bMvQnW) |
+| [isra_tanveer](https://www.instagram.com/isra_tanveer/) | Isratanveer | [Isra Tanveer](https://uwoca-my.sharepoint.com/:w:/g/personal/itanvee_uwo_ca/Ec6E3UxqNSlGrDux0BJgj4EBuVPkam8k4llcSfqm4bla8Q?e=bMvQnW) |
 
 (please dont check my match history... 😅)
 

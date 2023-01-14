@@ -9,9 +9,9 @@ I was previously in Psych, but that didn't really work out.
 - 🧀 I really like cheese
 
 ## 2 Truths and 1 Lie | 🤫
-1. [I can make really accurate goat noises](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000) 🐐 🔊
-2. [I'm ranked gold on Valorant](https://www.looper.com/img/gallery/the-untold-truth-of-pinocchio/intro-1637802137.jpg) 🔫 🐍
-3. [My dad has 11 siblings](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000) 👨 👨‍👩‍👧‍👦
+1. 🐐 [I can make really accurate goat noises](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)
+2. 🔫 [I'm ranked gold on Valorant](https://www.looper.com/img/gallery/the-untold-truth-of-pinocchio/intro-1637802137.jpg) 
+3. 👨‍👩‍👧‍👦 [My dad has 11 siblings](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)
 
 ## My links / info | 🔗
 | Instagram | League username | Resume |

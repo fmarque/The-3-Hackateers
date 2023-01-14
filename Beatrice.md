@@ -1,6 +1,6 @@
 #Welcome to Beatrice Ng's read me!
 ## :bulb: :books:
-I am a second year economics student in UofT focusing on Data Analytics :chart_with_downwards_trend: ! 
+I am a second year economics student in UofT focusing on Data Analytics! 
 3 Facts about me:
 -I have very bad moodswings
 -I love baking but don't have a sweet tooth

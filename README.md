@@ -11,11 +11,11 @@ We first tried to come up with shared interests. Since there's three of us, we s
 We're a very curious group of indivduals. We are always willing to learn something new. Competition is also something that intrigues all of us... Joining the Hacker Olympics seemed like the perfect opportunity.
 
 ## Our ReadMe Info | ℹ️
-[Beatrice's ReadMe](https://github.com/fmarque/The-3-Hackateers.git/Beatrice.md)
+[Beatrice's ReadMe](https://github.com/fmarque/The-3-Hackateers/blob/d9dbb29fca30e8d094d8e5511a81935f66bc9e3a/Beatrice.md)
 
-[Isra's ReadMe](https://github.com/fmarque/The-3-Hackateers.git/Isra.md)
+[Isra's ReadMe](https://github.com/fmarque/The-3-Hackateers/blob/7fcc8abdbe143fe9a6f0a96276c8bca58e11afb9/Isra.md)
 
-[Frances' ReadMe](https://github.com/fmarque/The-3-Hackateers.git/Frances.md/)
+[Frances' ReadMe](https://github.com/fmarque/The-3-Hackateers/blob/5fa0e99b4a350c7b5ea28ee05022e02354e2efd0/Frances.md)
 
 ## The 3 Hackateers' Github URL | 🔗
 [Click here!](https://github.com/fmarque/The-3-Hackateers.git)

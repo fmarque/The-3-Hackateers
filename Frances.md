@@ -1,10 +1,9 @@
-# Welcome to Frances' README!
-## Frances Marquez
+# Welcome to Frances Marquez' README!
 I am currently in my 2nd year at Western University, but first year in my program, CompSci.
 I was previously in Psych, but that didn't really work out.
 
 ## Some fun facts about me:
-- I obsess over new hobbies and forget about them in 3 weeks: current interest is knitting and crocheting
+- I obsess over new hobbies and forget about them in 3 weeks: current interests are knitting and crocheting
 - I make really good snickerdoodles
 - I really like cheese
 
@@ -18,4 +17,4 @@ I was previously in Psych, but that didn't really work out.
 | --------------- | --------------- | --------------- |
 | [illipeeno](https://www.instagram.com/illipeeno/) | h8deez (please dont check my match history...) | [Frances Marquez Resume](https://docs.google.com/document/d/1UPeRcQeEpy6xRTO5DnDaxsrXbSUQbp_UjgQqmYgedpA/edit?usp=sharing) |
 
-![alt text](https://e1.pngegg.com/pngimages/180/789/png-clipart-pusheen-cat-valentine-day-cian05-gray-cat-and-heart-art-thumbnail.png)
+![alt text](https://www.transparentpng.com/thumb/cat/2ZPZNa-cat-free-download.png)

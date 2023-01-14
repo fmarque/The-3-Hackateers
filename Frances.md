@@ -9,7 +9,7 @@ I was previously in Psych, but that didn't really work out.
 - 🧀 I really like cheese
 
 ## My favourite song | 🎵
-[OMG by Newjeans](https://youtu.be/_ZAgIHmHLdc)
+[OMG by NewJeans](https://youtu.be/_ZAgIHmHLdc)
 
 ![alt text](https://i.ytimg.com/vi/EbDFBY1edfs/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLC_gEZqZYWNXgi0iD8CJcZo_CwvPA)
 

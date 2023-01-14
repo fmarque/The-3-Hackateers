@@ -10,7 +10,7 @@ I was previously in Psych, but that didn't really work out.
 
 ## My favourite song | 🎵
 [OMG by Newjeans](https://youtu.be/_ZAgIHmHLdc)
-![alt text](https://www.rollingstone.com/wp-content/uploads/2022/12/NewJeans-Official-Photo.jpg?w=1581&h=1054&crop=1)
+![alt text](https://i.ytimg.com/vi/EbDFBY1edfs/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLC_gEZqZYWNXgi0iD8CJcZo_CwvPA)
 
 ## 2 Truths and 1 Lie | 🤫
 1. 🐐 [I can make really accurate goat noises](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)

@@ -9,7 +9,8 @@ I was previously in Psych, but that didn't really work out.
 - 🧀 I really like cheese
 
 ## My favourite song | 🎵
-[OMG - Newjeans](https://youtu.be/_ZAgIHmHLdc)
+[OMG by Newjeans](https://youtu.be/_ZAgIHmHLdc)
+![alt text](https://www.rollingstone.com/wp-content/uploads/2022/12/NewJeans-Official-Photo.jpg?w=1581&h=1054&crop=1)
 
 ## 2 Truths and 1 Lie | 🤫
 1. 🐐 [I can make really accurate goat noises](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)

@@ -8,7 +8,8 @@ I am a second year economics student in UofT focusing on Data Analytics!
 -I am an international student from Hong Kong!!
 
 ## My favourite song :notes:
-[Special by SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM) 
+[Special by SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM)
+
 ![alt text](https://i1.sndcdn.com/artworks-agKkGQSM4sKxWZyL-KemsNg-t500x500.png) 
 
 ## 2 Trues and 1 Lie 

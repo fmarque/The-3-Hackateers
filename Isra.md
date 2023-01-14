@@ -7,6 +7,9 @@ I am in my fourth and final year of health sciences and am looking forward to gr
 - :books: I love to read! My favourite book is A Thousand Splendid Suns by Khaled Hosseini
 - :speaking_head: I am trilingual
 
+## My favourite song | :notes:
+[Drops of Jupiter by Train] (https://www.youtube.com/watch?v=7Xf-Lesrkuc)
+
 ## 2 Truths and 1 Lie | 🤫
 1. :car: [I fell out of a moving car once](https://www.westminster-abbey.org/media/4095/truth.jpg?anchor=center&mode=crop&width=1024&height=512&rnd=132084410060000000)
 2. :black_circle: [I'm a black belt in Karate](https://www.looper.com/img/gallery/the-untold-truth-of-pinocchio/intro-1637802137.jpg) 

@@ -17,8 +17,8 @@ I am in my fourth and final year of health sciences and am looking forward to gr
 | --------------- | --------------- | --------------- |
 | [isra_tanveer](https://www.instagram.com/isra_tanveer/) | Isratanveer | [Isra Tanveer](https://uwoca-my.sharepoint.com/:w:/g/personal/itanvee_uwo_ca/Ec6E3UxqNSlGrDux0BJgj4EBuVPkam8k4llcSfqm4bla8Q?e=bMvQnW) |
 
-(please dont check my match history... 😅)
+:heart:
 
 Ciao for now!
 
-![alt text](https://www.google.ca/url?sa=i&url=https%3A%2F%2Fgifer.com%2Fen%2F5XEq&psig=AOvVaw22RWmCjrvZbq0fdwqsKxco&ust=1673791177230000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCLC-1Jacx_wCFQAAAAAdAAAAABAI)
+![alt text](https://pics.me.me/thumb_bye-bye-bye-nsync-bye-bye-memes-memes-pics-52856939.png)

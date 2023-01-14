@@ -7,7 +7,7 @@ I am a second year economics student in UofT focusing on Data Analytics!
 -I am an international student from Hong Kong!!
 
 ## My favourite song :notes:
-[Special - SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM)  
+[Special by SZA] (https://www.youtube.com/watch?v=bS7dvgYr6PM)  
 
 ## 2 Trues and 1 Lie 
 -I am terrified of geckos 
